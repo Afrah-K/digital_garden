@@ -9,6 +9,12 @@ I love AI. To the point of obsession. As much as I love humans. So I founded a r
 ### Jack of all, master of none.
 I do multiple things at once. Always have been and always will. This allows me to be a multi faceted player weaving connections between worlds that seem disconnected. Ever thought genshin impact would help me build a startup? I do and its working.
 
+### Mindmap Index
+[[Thoughts]]
+
+
 ###### Connect on my socials :3
 []https://www.instagram.com/afrahuwu/)
 
+
+//Once in a while I have a big brain moment
